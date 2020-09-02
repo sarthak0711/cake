@@ -1,0 +1,6 @@
+- sugar and butter to a bowl 
+- add some water to them
+- after that add some flour to the mixture
+- then form a dough by mixing the ingredients
+- put the mixture in container
+- bake the mixture
